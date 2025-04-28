@@ -1,4 +1,4 @@
-Hello, I'm Esther Abioye, I'm a curious builder and a Doctor of Veterinary Medicine (DVM) with a strong interest in product innovation, sustainable systems, and technology-driven solutions—not just in agriculture, but across sectors that improve everyday life.
+Hello, I'm Esther Abioye, I'm a curious innovator and a Doctor of Veterinary Medicine (DVM) with a strong interest in product innovation, sustainable systems, and technology-driven solutions—not just in agriculture, but across sectors that improve everyday life.
 ## 💡 What I Do 
 I explore the intersection of veterinary science, climate-conscious agriculture, and community-centered tech,I contribute to mobility and urban innovation projects, applying user research and systems thinking to real-world transportation challenges.I'm growing my skills in product management, UX, and innovation
 ## 🚀Projects I've Worked On
